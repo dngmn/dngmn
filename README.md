@@ -9,6 +9,6 @@ i love music and video games <br>
 hello im here solely to create <br>
 skins and be with my friends <br>
 ⠀ <br>
-♡ — dbz⠀yakuza⠀ykw⠀ina11 <br>
+♡ — jjba⠀yakuza⠀ykw⠀ina11 <br>
  + manga anime and dramas <br>
 </td></tr></table>
