@@ -7,8 +7,8 @@ hehim⠀⠀19歳⠀⠀eng⠀⠀jpn⠀+ <br>
 i love music and video games <br>
 ⠀ <br>
 hello im here solely to create <br>
-skins and be with my friends <br>
+things and hang with friends <br>
 ⠀ <br>
 ♡ — jjba⠀dangan⠀rgg⠀ina11 <br>
- + manga anime and dramas <br>
+ + manga games and dramas <br>
 </td></tr></table>
